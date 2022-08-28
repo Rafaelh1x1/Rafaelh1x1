@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Rafaelh1x1
-- 🌱 I’m currently learning Python on my own time, and Sql through a class
+- 🌱 I’m currently learning some C, Python, Sql
 - 💞️ I’m looking to collaborate on anything I currently want to learn as much as I can about whatever I can !
 - 📫 How to reach me ,,, hungrafael37@gmail.com
 
