@@ -1,5 +1,4 @@
-What's up everyone, hope you're having a good day. 
-This is where I keep all my crazy projects regardless of how bad or good they are!
+This is where I keep all my projects. Yep that's it!
 
 Hit me up @ hungrafael37@gmail.com
 
